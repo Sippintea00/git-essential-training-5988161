@@ -1,2 +1,2 @@
 
-word my boss is super smelly like onions 
+word my boss is supa lame 
